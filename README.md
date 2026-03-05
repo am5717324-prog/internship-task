@@ -1,4 +1,4 @@
-Internship Task: Nike Logo Rebrand
+Internship Task:Creative Typography & Visual Design
 
 ## Project Summary
 Maine is project mein Nike ke logo ko aik naya aur modern look dene ki koshish ki hai.
